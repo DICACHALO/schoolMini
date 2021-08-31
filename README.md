@@ -1,0 +1,1 @@
+# schoolMini
